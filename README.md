@@ -1,1 +1,1 @@
-# 10bibleversetowhatsapp
+# 3bibleversetowhatsapp
